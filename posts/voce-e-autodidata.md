@@ -155,7 +155,7 @@ Originalmente, Feynman aplicou a sua técnica para explicar os fundamentos da f�
 
 ### Bill Gates: The best teacher I never had
 
-[https://youtu.be/WOoJh6oYAXE](https://youtu.be/WOoJh6oYAXE)
+[![Watch the video](https://img.youtube.com/vi/WOoJh6oYAXE/sddefault.jpg)](https://youtu.be/WOoJh6oYAXE)
 
 [The best teacher I never had](https://youtu.be/WOoJh6oYAXE)
 
@@ -163,7 +163,7 @@ Originalmente, Feynman aplicou a sua técnica para explicar os fundamentos da f�
 
 Outra lenda que tem excelentes dicas sobre como aprender, é o Pierluigi Piazzi ou Professor Pier.
 
-[https://youtu.be/BoMmj_Xt-pk](https://youtu.be/BoMmj_Xt-pk)
+[![Watch the video](https://img.youtube.com/vi/BoMmj_Xt-pk/sddefault.jpg)](https://youtu.be/BoMmj_Xt-pk)
 
 [Palestra: Ensinando inteligência - Pierluigi Piazzi](https://www.youtube.com/watch?v=BoMmj_Xt-pk)
 
